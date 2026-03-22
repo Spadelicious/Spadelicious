@@ -1,4 +1,5 @@
 ## Hi 🥺🥺🥺
 
 im very cool i swear
-uh wip
+
+wip idk how to use this site pls help
