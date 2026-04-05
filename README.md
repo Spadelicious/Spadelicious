@@ -8,9 +8,12 @@ _uhhhhh my name is spadel or spade idc which one uhhh_
 
 __I like tc2, arsenal, stardew valley, and uhh more stupid shit idk ask me what i like__
 
-<p align=center>
-hi jim!!!!
-</p>
+<div align=center>
+
+  
+${\color{purple} \huge \text{hi jim!!!!}}$
+
+</div>
 
 <p align=center>
 
