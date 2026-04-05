@@ -10,4 +10,7 @@ __I like tc2, arsenal, stardew valley, and uhh more stupid shit idk ask me what 
 
 __hi jim!!!!__
 
+<p align=center>
+
 <img src=IMG_1429.webp width=300>
+</p>
