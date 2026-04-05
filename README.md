@@ -1,6 +1,11 @@
 ## Hi 🥺🥺🥺 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ __₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚__
+<p align=center>
+  <img src=https://komarev.com/ghpvc/?username=Spadelicious alt=
+⠀</p>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+
+
+⠀ __₊˚ ✧ ━━━━⊱⋆⊰━━━━ ✧ ₊˚__
 
 wip idk how to use this site pls help
 
