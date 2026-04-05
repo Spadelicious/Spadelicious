@@ -8,5 +8,6 @@ _uhhhhh my name is spadel or spade idc which one uhhh_
 
 __I like tc2, arsenal, stardew valley, and uhh more stupid shit idk ask me what i like__
 
-hi jim 
-![Alt text](IMG_1429.webp)
+__hi jim!!!!__
+
+<img src=IMG_1429.webp width=300>
