@@ -16,11 +16,11 @@ __I like tc2, arsenal, stardew valley, dave and bambi, and uhh more stupid shit 
 <div align=center>
 
   
-${\color{purple} \huge \text{hi jim!!!!}}$
+${\color{hotpink} \huge \text{hi carl!!!}}$
 
 </div>
 
 <p align=center>
 
-<img src=IMG_1429.webp width=300>
+<img src=IMG_9368.png width=300>
 </p>
