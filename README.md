@@ -24,3 +24,11 @@ ${\color{hotpink} \huge \text{hi carl!!!}}$
 
 <img src=IMG_9368.png width=300>
 </p>
+
+<p align=center>
+${\color{orange} \huge \text{my yaoi..🥺}}$
+
+<p align=center>
+
+<img src=IMG_9559.png width=300>
+</p>
