@@ -13,6 +13,7 @@ _uhhhhh my name is spadel or spade idc which one uhhh_
 
 I really enjoy typical colors 2, stardew valley, guts and blackpowder, and dave and bambi!!!
 
+<img src=IMG_9599.png width=1000>
 
 <div align=center>
 
