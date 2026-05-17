@@ -25,8 +25,10 @@ I really enjoy typical colors 2, stardew valley, guts and blackpowder, dave and 
 
 <img src=IMG_9600.png width=1000>
 <p align=center>
-  
+
+  <p align=center>
 ${\color{orange} \huge \text{my yaoi..🥺}}$
+
 
 <p align=center>
 
