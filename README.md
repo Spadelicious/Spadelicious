@@ -18,13 +18,12 @@ I really enjoy typical colors 2, stardew valley, guts and blackpowder, dave and 
 <div align=center>
 
   
-${\color{hotpink} \huge \text{hi carl!!!}}$
 
 </div>
 
-<p align=center>
+<p align=right>
 
-<img src=IMG_9368.png width=300>
+<img src=Untitled700_20260516184729.png width=600>
 </p>
 
 <p align=center>
