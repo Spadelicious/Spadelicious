@@ -11,7 +11,7 @@ wip idk how to use this site pls help
 
 _uhhhhh my name is spadel or spade idc which one uhhh_
 
-I really enjoy typical colors 2, stardew valley, guts and blackpowder, dave and bambi, and object shows!!!
+i like dnb and other crap ooo
 
 
 <img src=IMG_9599.png width=1000>
